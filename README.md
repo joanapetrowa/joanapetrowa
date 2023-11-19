@@ -7,7 +7,7 @@
 
 - 🖥 Studied **UX/UI Design** at SoftUni Creative.
 
-- 📸 Also worked like **photograper** and **graphic designer**.
+- 📸 Also worked like **photographer** and **graphic designer**.
 
 - ✏️ Digital drawing with ProCreate is my hobby.
 
